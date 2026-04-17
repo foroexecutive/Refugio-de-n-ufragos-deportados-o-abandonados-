@@ -1,1 +1,2 @@
-# Refugio-de-n-ufragos-deportados-o-abandonados-
+# Refugio-de-náufragos-deportados-o-abandonados-
+Poco después de su descubrimiento, la costa de Santa Cruz, tierra del palo Brasil o tierra del Brasil, designación que por último prevaleció (22 de abril de 1500), se transformó en refugio de náufragos, deportados o abandonados por compañeros de navegación, de forajidos, mercaderes franceses, alemanes, judíos y españoles, y de piratas de toda procedencia y nacionalidad, que acudían a ella en busca de abrigo, descanso y aprovisionamiento. Muchos traficaban con los naturales, obteniendo, en cambio, ciertos artículos de adorno y uso común, llamados de rescate, palo de Brasil, papagayos y monos.
